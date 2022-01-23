@@ -1,1 +1,2 @@
-Replace this with a list of your favorite things.
+1. Megan
+2. Everyone else
